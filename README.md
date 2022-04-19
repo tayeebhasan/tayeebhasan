@@ -1,3 +1,3 @@
-Tayeeb Hasan, MSc. at Concordia University
+Tayeeb Hasan, MSc. in CS at Concordia University
 
 Alternate account for @flozender
